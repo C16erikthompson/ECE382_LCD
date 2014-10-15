@@ -34,7 +34,7 @@ Moving an 8x8 block
 
 Entire Waveform
 
-![alt test](http://s47.photobucket.com/user/erik_thompson2/media/20141014_210525_zpsi1ewytal.jpg.html)
+![alt test](http://i47.photobucket.com/albums/f189/erik_thompson2/20141014_210525_zpsi1ewytal.jpg)
 
 Line 66
 
